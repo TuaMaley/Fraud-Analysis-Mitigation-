@@ -1,0 +1,1 @@
+Conducted comprehensive fraud analysis on transaction data for Bank XYZ in 2023, providing senior management with strategic insights for recovery planning and actionable recommendations to enhance fraud detection capabilities.
